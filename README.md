@@ -1,2 +1,2 @@
 # BiteRush
-![Bite-Rush-Final-Draft](https://github.com/user-attachments/assets/9b0a8ba4-0962-49cb-b3eb-b3870f6f0cff)
+![biterushh netlify app_ (1)](https://github.com/user-attachments/assets/cd498bb4-a4da-445c-b0c1-432d685b627c)
